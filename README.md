@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @darththor
+- 👀 I’m interested in Mathematics and Physics!
